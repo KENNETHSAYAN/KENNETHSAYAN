@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi I'm Kenneth Angel M. Sayan👋
 
 <!--
 **KENNETHSAYAN/KENNETHSAYAN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
